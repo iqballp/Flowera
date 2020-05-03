@@ -1,1 +1,0 @@
-# Submis Android pemula
